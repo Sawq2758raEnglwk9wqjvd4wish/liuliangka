@@ -1,4 +1,4 @@
-**新西兰eSIM卡可以注册Gmail吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**新西兰eSIM卡可以注册Gmail吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在新西兰旅行或居住的朋友，可能会遇到这样的问题：我刚拿到一张新西兰的eSIM卡，可是我想用它来注册Gmail账号，这行得通吗？今天我们就来详细探讨一下这个问题，看看新西兰的eSIM卡是否真的能用来注册Gmail。
 
@@ -18,4 +18,4 @@
 
 最后，无论你是选择用eSIM卡注册Gmail，还是通过其他方式使用Gmail，最重要的是保持良好的网络安全意识，确保自己的账号安全。毕竟，电子邮件不仅是日常沟通的重要工具，更是个人信息存储的关键所在。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -1,4 +1,4 @@
-# 新西兰5G卡可以注册Gmail吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 新西兰5G卡可以注册Gmail吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 最近有不少朋友问我关于新西兰5G卡能不能用来注册Gmail的问题。这其实是一个挺常见的疑问，尤其是在新西兰生活、学习或者旅行的朋友，可能会因为需要一个国际邮箱而想到用当地的SIM卡来注册。今天就来和大家详细聊聊这个话题。
 
@@ -16,4 +16,4 @@
 
 希望这篇文章对你有所帮助！如果你还有其他关于新西兰5G卡或者其他相关的问题，欢迎随时留言交流。让我们一起探讨更多有趣的话题吧！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

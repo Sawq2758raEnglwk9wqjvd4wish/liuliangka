@@ -1,4 +1,4 @@
-# 新西兰eSIM卡可以注册Telegram吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 新西兰eSIM卡可以注册Telegram吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在当今这个数字化飞速发展的时代，通信工具的多样化让我们的生活变得更加便捷。无论是在国内还是出国旅行，保持与外界的联系变得尤为重要。对于许多计划前往新西兰的朋友们来说，选择合适的通信方式无疑是一个需要仔细考虑的问题。其中，eSIM卡因其无需实体卡槽、方便携带等优点逐渐成为越来越多人的选择。那么问题来了：新西兰的eSIM卡是否可以用来注册Telegram呢？
 
@@ -45,4 +45,4 @@
 
 最后提醒大家，在享受现代科技带来的便利的同时，也要时刻关注个人信息安全。合理利用工具，才能真正实现高效沟通的目的。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

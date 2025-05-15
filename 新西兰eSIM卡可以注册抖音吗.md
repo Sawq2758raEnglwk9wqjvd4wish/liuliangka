@@ -16,6 +16,6 @@
 
 综上所述，新西兰的eSIM卡是可以用来注册并正常使用抖音的。尽管过程中可能遇到一些小障碍，但只要掌握正确的方法并耐心调试，绝大多数用户都能顺利完成操作。而对于计划前往新西兰的游客而言，提前了解相关知识无疑有助于提升旅途中的娱乐体验。希望本文能为大家提供更多实用的信息和指导！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)
+![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)

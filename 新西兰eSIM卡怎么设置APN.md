@@ -1,4 +1,4 @@
-# 新西兰eSIM卡怎么设置APN？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 新西兰eSIM卡怎么设置APN？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在新西兰旅行或者居住的朋友，可能都会遇到需要使用本地网络的情况。而eSIM卡作为一种无需实体卡槽的新型SIM卡形式，正变得越来越流行。不过，和传统的实体SIM卡不同，eSIM卡需要手动配置一些参数才能正常使用，其中APN（Access Point Name）就是关键的一个。
 
@@ -95,4 +95,4 @@ APN是手机连接到移动网络时用来指定接入点的名称。简单来�
 
 如果你在设置过程中遇到了困难，别担心，随时可以向身边的朋友求助，或者直接联系运营商客服。总之，保持耐心和细心，相信你一定可以成功设置好APN！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
