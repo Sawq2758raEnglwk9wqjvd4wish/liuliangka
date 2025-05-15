@@ -1,4 +1,4 @@
-# 新西兰遠遊卡可以注册whats吗？新西兰生活必备知识[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 新西兰遠遊卡可以注册whats吗？新西兰生活必备知识[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 如果你正计划前往新西兰旅行或者定居，那么新西兰的遠遊卡（New Zealand Prepaid Travel SIM Card）可能是你必不可少的通信工具之一。远遊卡因其便捷性和实用性，在新西兰广受欢迎。然而，关于这张卡能否用来注册WhatsApp（简称“whats”），许多初到新西兰的朋友可能会感到困惑。今天我们就来详细探讨这个问题，并解答一些相关的疑问。
 
@@ -50,4 +50,4 @@
 
 最后，再次提醒大家，如果有任何疑问或需要帮助，可以通过官方客服渠道获取支持。希望每位来到新西兰的朋友都能有一个愉快且无忧的旅程！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

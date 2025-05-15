@@ -16,6 +16,6 @@
 
 总之，新西兰电话卡完全可以用来注册WSAPP。只要按照正确的步骤操作，并注意一些常见的注意事项，相信每位用户都能顺利完成注册并享受这款应用带来的乐趣。希望这篇文章对你有所帮助！如果还有其他疑问，欢迎随时留言讨论。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)
+![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)
