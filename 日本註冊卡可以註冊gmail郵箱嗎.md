@@ -1,4 +1,4 @@
-**日本註冊卡可以註冊Gmail郵箱嗎？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**日本註冊卡可以註冊Gmail郵箱嗎？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 大家好！今天咱们来聊聊一个很多人都关心的问题——日本注册卡是否可以用来注册Gmail邮箱。这个问题看似简单，但其实涉及到不少细节和背景知识。如果你也对这个话题感兴趣，不妨跟着我一起深入了解。
 
@@ -22,4 +22,4 @@
 
 好了，今天的分享就到这里啦！如果你还有其他关于科技、生活等方面的问题，欢迎随时留言交流哦~记得关注我们的频道，获取更多精彩内容哦！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

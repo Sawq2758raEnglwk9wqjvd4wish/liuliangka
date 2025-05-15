@@ -1,4 +1,4 @@
-**日本遠遊卡可以注册Instagram吗？ [[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**日本遠遊卡可以注册Instagram吗？ [[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在当今数字化飞速发展的时代，社交媒体平台已经成为我们生活中不可或缺的一部分。其中，Instagram（简称Ins）作为全球范围内最受欢迎的社交软件之一，以其独特的视觉分享体验吸引了无数用户。无论是记录生活点滴还是展示个人风采，Instagram都为人们提供了一个展示自我的绝佳舞台。
 
@@ -30,4 +30,4 @@
 
 最后，如果你正打算前往日本旅游或长期居住，不妨提前规划好自己的通讯方案，以便更好地融入当地的生活节奏。同时，也可以关注相关社交媒体平台上的最新动态，获取更多实用的小技巧和经验分享。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

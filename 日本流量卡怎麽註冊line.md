@@ -1,4 +1,4 @@
-**日本流量卡怎麽註冊line[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**日本流量卡怎麽註冊line[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在日本，Line是一款非常受欢迎的通讯软件，类似于国内的微信。无论是和朋友聊天、分享日常，还是玩游戏、购物，Line都能满足你的需求。然而，对于初次来到日本或者刚拿到日本流量卡的人来说，注册Line可能会有些困惑。别担心，本文将详细为你讲解如何顺利注册Line，让你快速融入日本的生活。
 
@@ -50,4 +50,4 @@
 
 无论你是留学生、游客还是在日工作的人员，Line都将成为你生活中不可或缺的一部分。快来加入Line的世界吧，和朋友们一起分享快乐时光！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

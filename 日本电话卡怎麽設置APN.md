@@ -1,4 +1,4 @@
-**日本电话卡怎麽設置APN[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**日本电话卡怎麽設置APN[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在日本旅行或者长期居住的朋友可能会遇到一个问题，那就是如何正确设置手机的APN（Access Point Name）。APN是连接移动网络时必须配置的一个参数，对于使用日本本地电话卡的用户来说，这一步骤尤为重要。如果你在使用日本电话卡时无法正常上网或发送短信，很可能是APN设置出了问题。
 
@@ -68,4 +68,4 @@
 
 希望这篇文章能对你有所帮助！如果你还有其他关于日本电话卡的问题，欢迎随时留言讨论。祝大家在日本的旅途愉快！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
