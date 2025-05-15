@@ -1,4 +1,4 @@
-# 新西兰保號卡怎么注册gmail邮箱 [[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 新西兰保號卡怎么注册gmail邮箱 [[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在新西兰生活或工作的人，可能会遇到需要使用Gmail邮箱的情况。无论是为了日常沟通、工作需求还是学习交流，拥有一个Gmail邮箱都是非常方便的。然而，对于一些刚到新西兰的人来说，可能会对如何用新西兰的保號卡（即SIM卡）注册Gmail邮箱感到困惑。今天，我们就来详细讲解一下这个过程，帮助大家轻松搞定。
 
@@ -49,4 +49,4 @@
 
 好了，到这里我们的介绍就结束了。祝大家都能顺利开通自己的Gmail邮箱，并享受便捷高效的电子邮件服务！😊
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

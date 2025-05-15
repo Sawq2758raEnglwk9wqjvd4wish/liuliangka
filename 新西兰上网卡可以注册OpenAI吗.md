@@ -1,4 +1,4 @@
-**新西兰上网卡可以注册OpenAI吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**新西兰上网卡可以注册OpenAI吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 近年来，随着人工智能技术的飞速发展，OpenAI推出的ChatGPT、DALL-E等产品在全世界范围内掀起了热潮。无论是想学习编程、创作文章，还是探索艺术灵感，这些工具都能提供强大的支持。然而，不少身处海外的朋友却遇到了一个问题：我用新西兰的上网卡能不能注册OpenAI呢？
 
@@ -63,4 +63,4 @@
 
 **最后提醒一下，新西兰的上网卡只是工具，真正的重点在于如何善用它。祝大家都能顺利注册并享受OpenAI带来的便利与乐趣！**
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
