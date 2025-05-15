@@ -1,4 +1,4 @@
-# 日本SIM卡可以注册TG吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 日本SIM卡可以注册TG吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在日本，很多人可能会好奇自己的SIM卡是否能用来注册Telegram（简称TG）。这个问题其实涉及多个方面，包括日本的网络环境、SIM卡类型以及Telegram的使用政策等。今天我们就来详细探讨一下这个话题。
 
@@ -18,4 +18,4 @@
 
 综上所述，只要条件允许，日本的SIM卡完全可以用来注册Telegram。只要按照正确的流程操作，并且遵循基本的安全准则，就能轻松享受这款强大的即时通讯工具带来的便利。希望这篇文章对你有所帮助！如果有更多疑问，欢迎随时交流讨论。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -14,7 +14,7 @@
 
 综上所述，使用日本SIM卡完全可以顺利完成Instagram的注册流程，并且享受到这个平台带来的各种便利。当然，在实际使用过程中还需要结合具体情况灵活应对可能出现的各种挑战。希望大家都能找到最适合自己的方法，愉快地畅游于虚拟世界之中！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 **总结与建议**
 
@@ -30,4 +30,4 @@
 
 总之，无论你是来日本游玩还是定居工作，只要掌握了正确的方法，就一定能够顺利地开启属于自己的Instagram之旅！相信通过不断地探索与实践，你会逐渐发现更多有趣的内容和志同道合的人群。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

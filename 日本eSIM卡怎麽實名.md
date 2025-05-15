@@ -1,4 +1,4 @@
-**日本eSIM卡怎麽實名[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**日本eSIM卡怎麽實名[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 近年来，随着全球通信技术的发展，电子SIM卡（eSIM）逐渐成为一种趋势。尤其是在日本这样科技发达的国家，eSIM卡的应用越来越广泛。不过，对于想要在日本使用eSIM卡的人来说，可能最关心的问题之一就是如何实现实名制。毕竟，在很多地方，eSIM卡的实名制要求可能会让人感到困惑。今天，我们就来详细聊聊日本的eSIM卡实名问题。
 
@@ -24,4 +24,4 @@
 
 最后，无论你是计划长期居住在日本，还是短期旅行，eSIM卡都是一种非常方便的选择。它不仅节省了更换物理SIM卡的时间和精力，还能让你随时随地连接互联网，享受数字生活带来的便利。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

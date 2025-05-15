@@ -1,4 +1,4 @@
-**日本eSIM卡怎么设置APN？**[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+**日本eSIM卡怎么设置APN？**[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在日本使用eSIM卡时，正确配置APN（接入点名称）是确保网络连接顺畅的关键步骤。对于初次接触eSIM卡或者第一次在日本使用移动数据服务的人来说，可能对如何设置APN感到困惑。别担心，这篇文章将为你详细讲解如何设置日本eSIM卡的APN，让你轻松享受高速网络体验。
 
@@ -54,4 +54,4 @@
 
 无论你是商务出差还是休闲旅游，一张合适的eSIM卡都会让旅途更加愉快。希望本文能帮到你！如果你还有其他疑问，欢迎随时留言讨论。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

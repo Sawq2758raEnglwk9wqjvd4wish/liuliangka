@@ -1,4 +1,4 @@
-**日本SIM卡怎麽查流量？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**日本SIM卡怎麽查流量？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在日本旅行或居住时，使用日本的SIM卡是许多人的首选，因为它能提供稳定的网络连接和便捷的通信服务。然而，对于初次使用日本SIM卡的人来说，如何查看剩余流量可能是一个让人困惑的问题。别担心，这篇文章将详细讲解如何在不同情况下检查你的日本SIM卡流量，无论是通过手机设置还是特定的应用程序。
 
@@ -64,4 +64,4 @@
 
 最后，如果你有任何关于日本SIM卡或其他相关问题，欢迎随时留言讨论！一起交流，共同进步！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
