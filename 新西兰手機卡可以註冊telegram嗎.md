@@ -1,4 +1,4 @@
-**新西兰手機卡可以註冊telegram嗎[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**新西兰手機卡可以註冊telegram嗎[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在当今这个信息爆炸的时代，社交软件已经成为我们生活中不可或缺的一部分。而提到社交软件，Telegram无疑是一个绕不开的话题。作为一个以隐私保护和安全加密著称的即时通讯工具，Telegram在全球范围内拥有大量的用户群体。对于生活在新西兰的人来说，是否可以用新西兰的手機卡注册Telegram呢？这可能是很多初次接触Telegram的新西兰用户心中的疑问。
 
@@ -24,4 +24,4 @@
 
 总而言之，新西兰的手機卡完全能够用于注册Telegram，并且整个过程简单快捷。希望这篇介绍能让大家对Telegram有更加全面的认识，并鼓励更多新西兰居民加入这个充满活力的数字社区。如果你还有什么其他疑问或者想要分享自己使用经验的话，欢迎随时留言交流哦！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

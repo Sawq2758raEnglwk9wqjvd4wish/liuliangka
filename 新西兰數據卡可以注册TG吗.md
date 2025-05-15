@@ -1,4 +1,4 @@
-# 新西兰数据卡是否能用于注册Telegram[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 新西兰数据卡是否能用于注册Telegram[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在当今数字化飞速发展的时代，通讯工具的选择变得越来越多样化。提到国际化的即时通讯软件，Telegram无疑是一个备受关注的存在。它以其强大的加密功能、简洁的操作界面以及丰富的功能而闻名。对于许多海外用户来说，尤其是那些身处新西兰的朋友，使用本地数据卡来注册Telegram成为了一个热门话题。
 
@@ -25,4 +25,4 @@
 
 最后提醒大家一句：无论何时何地，安全永远是第一位的！希望大家都能充分利用好手中的资源，尽情享受数字时代的乐趣吧！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -1,4 +1,4 @@
-# 新西兰旅遊卡可以註冊TikTok嗎？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 新西兰旅遊卡可以註冊TikTok嗎？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 大家好！今天咱们来聊聊一个非常有趣的话题——新西兰旅遊卡能不能注册 TikTok。这事儿听起来可能有点绕，但实际上很多人在出国旅行时都会遇到类似的问题。如果你也对这个问题感到好奇，那就跟着我一起深入了解吧！
 
@@ -48,4 +48,4 @@
 
 最后，如果你还有其他关于新西兰旅遊卡或者其他旅行相关的问题，欢迎随时留言交流。祝大家旅途愉快，玩得开心！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -1,4 +1,4 @@
-# 新西兰旅游卡可以注册Google吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 新西兰旅游卡可以注册Google吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 大家好！今天咱们来聊聊一个比较常见的问题：新西兰旅游卡能不能用来注册Google账号？这个问题其实很多人都问过，尤其是那些计划去新西兰旅行或者已经在新西兰的朋友。所以，咱们就一起来详细探讨一下。
 
@@ -44,4 +44,4 @@
 
 希望这篇文章能为大家解答疑惑，祝大家在新西兰玩得开心，同时也顺利开启属于自己的数字生活！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
