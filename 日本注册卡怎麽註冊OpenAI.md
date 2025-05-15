@@ -1,4 +1,4 @@
-# 日本注册卡怎麽註冊OpenAI [[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 日本注册卡怎麽註冊OpenAI [[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 大家好！今天咱们聊聊关于如何在日本使用本地的注册卡来开通和使用OpenAI服务的问题。这可能听起来有点复杂，但别担心，我会尽量用通俗易懂的语言来给大家解释清楚。
 
@@ -48,4 +48,4 @@
 
 好了，以上就是关于“日本注册卡怎麽註冊OpenAI”的全部内容啦。希望这篇文章能对你有所帮助，祝大家都能顺利开启属于自己的智能之旅！如果你还有其他想了解的内容，欢迎继续关注我们的频道，下一期再见咯～ 
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

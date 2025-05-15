@@ -15,6 +15,6 @@
 
 综上所述，尽管使用日本数据卡注册OpenAI可能存在一些挑战，但通过适当的准备和细心的操作，大多数人都能够顺利地完成这一过程。希望本文提供的信息能帮助那些对此感兴趣的朋友更好地理解这个问题，并成功地开启他们的AI之旅。无论您是为了学习新知识还是探索未来可能性，OpenAI都将为您提供无限的机会！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -1,4 +1,4 @@
-**日本注册卡可以注册WhatsApp吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**日本注册卡可以注册WhatsApp吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 提到WhatsApp，大家应该都不陌生。这款由Facebook旗下的即时通讯软件在全球范围内拥有海量用户，无论是跨国交流、家庭沟通还是商业联系，它都扮演着不可或缺的角色。然而，对于生活在日本或者有在日本生活经历的朋友来说，有一个问题常常萦绕在心头：日本注册卡是否可以用于注册WhatsApp呢？
 
@@ -31,4 +31,4 @@
 
 无论你是打算长期居住在日本，还是仅仅计划短期访问，掌握正确的注册方法都是非常重要的。希望本文能够为你提供有价值的参考信息，让你在使用WhatsApp的过程中更加得心应手！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

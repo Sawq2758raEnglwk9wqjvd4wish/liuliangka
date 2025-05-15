@@ -1,4 +1,4 @@
-# 日本无限流量卡可以注册OpenAI吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 日本无限流量卡可以注册OpenAI吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 提到日本无限流量卡和OpenAI，很多人可能会感到疑惑：这两者之间到底有什么关系？能不能用日本无限流量卡来注册OpenAI的服务呢？今天，我们就来详细聊聊这个问题。
 
@@ -45,4 +45,4 @@
 
 希望这篇文章对你有所帮助～如果你还有其他疑问欢迎随时留言讨论！记得关注我的频道获取更多实用技巧哦～
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

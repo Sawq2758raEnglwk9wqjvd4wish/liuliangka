@@ -1,4 +1,4 @@
-**如何在日本设置数据卡的APN[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**如何在日本设置数据卡的APN[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在异国他乡旅行或者工作时，手机的数据连接是非常重要的。特别是在日本这样科技高度发达的国家，拥有稳定的网络连接不仅能让生活更加便利，还能让旅行体验更上一层楼。对于使用数据卡的用户来说，正确设置APN（接入点名称）是确保数据卡正常工作的关键步骤之一。
 
@@ -104,4 +104,4 @@ SoftBank是另一家知名的日本移动运营商，其APN设置也非常简单
 
 设置数据卡的APN虽然看似复杂，但只要掌握了正确的步骤，其实并不难。无论是NTT Docomo、KDDI还是SoftBank，其APN设置都非常直观。希望这篇文章能帮助你在日本顺利地配置好数据卡的APN，享受畅快的上网体验！如果你还有其他疑问，欢迎随时留言讨论。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

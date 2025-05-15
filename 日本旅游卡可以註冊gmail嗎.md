@@ -1,4 +1,4 @@
-**日本旅游卡可以注册Gmail吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**日本旅游卡可以注册Gmail吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 大家好！最近有不少朋友问我关于日本旅游卡和Gmail账户注册的问题。特别是那些计划去日本旅行的人，常常会担心自己在日本旅行期间无法顺利注册Gmail账号。今天，我们就来详细聊聊这个话题，希望能给大家带来帮助。
 
@@ -43,4 +43,4 @@ Gmail账户的创建通常需要一个有效的手机号码作为验证手段。
 
 希望这篇文章能解答你们心中的疑惑！如果有更多疑问，欢迎随时留言交流。祝大家旅途愉快！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
