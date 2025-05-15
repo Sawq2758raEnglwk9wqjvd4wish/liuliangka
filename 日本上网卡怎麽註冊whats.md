@@ -1,4 +1,4 @@
-**日本上网卡怎么注册WhatsApp？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**日本上网卡怎么注册WhatsApp？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在日本旅行或长期居住的朋友，可能会遇到需要使用互联网来保持联系的情况。尤其是像WhatsApp这样的即时通讯软件，已经成为许多人日常生活中不可或缺的一部分。那么，问题来了——在日本如何注册和使用WhatsApp呢？今天就来给大家详细解答一下。
 
@@ -18,4 +18,4 @@
 
 最后提醒一句：如果你对整个流程感到迷茫的话，不妨多查阅相关资料或者咨询专业人士的意见。毕竟每个人的情况都不尽相同嘛！希望这篇攻略能够帮到有需要的小伙伴们，祝大家都能顺利地与亲朋好友保持联络～ 
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -1,4 +1,4 @@
-**如何在日本使用护照注册Telegram[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**如何在日本使用护照注册Telegram[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 近年来，随着互联网技术的飞速发展，即时通讯软件在全球范围内迅速普及，而Telegram作为一款功能强大且安全性极高的社交平台，备受全球用户的青睐。尤其是在日本这样一个科技发达、网络环境高度成熟的国家，Telegram的用户群体也在不断壮大。然而，对于许多初次接触Telegram的新手来说，尤其是那些需要通过护照进行注册的用户，可能会感到无从下手。本文将详细讲解如何在日本使用护照成功注册Telegram，并分享一些实用的小技巧。
 
@@ -48,4 +48,4 @@
 
 最后，再次提醒大家，在享受科技带来便利的同时，也要时刻注意网络安全和个人信息安全。只有这样，才能真正享受到Telegram带来的优质体验！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

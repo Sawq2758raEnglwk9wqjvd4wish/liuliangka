@@ -1,4 +1,4 @@
-# 日本不限流量卡怎麽註冊TG [[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 日本不限流量卡怎麽註冊TG [[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在当今这个信息爆炸的时代，手机和网络已经成为我们生活的重要组成部分。无论是工作、学习还是娱乐，都离不开手机和互联网的支持。而对于许多想要体验更自由、更开放网络环境的人来说，Telegram（简称TG）无疑是一个不可忽视的存在。
 
@@ -57,4 +57,4 @@ A: 完全没问题！只要将语言设置调整为简体中文即可享受到�
 
 最后再次提醒大家：请务必遵守当地法律法规及相关规定，合理合法地使用网络资源哦～
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -1,4 +1,4 @@
-**日本手機卡怎麽註冊Instagram？【TG💪+ @donk5151】**
+**日本手機卡怎麽註冊Instagram？【TG💪+ @esim1088】**
 
 在日本生活或旅行时，注册和使用Instagram是一个常见的需求。无论是为了记录生活点滴、分享美食美景，还是与全球的朋友互动，Instagram都成了不可或缺的社交平台之一。然而，对于初来乍到的人来说，如何用日本的手機卡注册Instagram可能会感到困惑。今天，我们就来详细讲解一下这个过程，希望能帮助大家顺利开启Instagram之旅。
 
@@ -24,4 +24,4 @@
 
 无论你是想要记录生活的点滴，还是寻找志同道合的朋友，Instagram都能为你提供一个广阔的平台。现在，就让我们一起开始探索这个充满乐趣的世界吧！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

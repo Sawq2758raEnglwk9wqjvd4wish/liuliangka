@@ -1,4 +1,4 @@
-**如何在日本注册Google账号？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**如何在日本注册Google账号？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在当今这个信息化的时代，Google账号已经成为我们生活中不可或缺的一部分。无论是用于收发邮件、管理日程，还是作为其他应用和服务的基础登录方式，Google账号的重要性毋庸置疑。然而，对于身处日本的用户来说，注册Google账号可能会遇到一些特殊的挑战。这篇文章将详细讲解如何在日本成功注册Google账号，帮助大家解决这一问题。
 
@@ -47,4 +47,4 @@
 
 无论你是刚到日本的新移民，还是长期居住在这里的老住户，拥有一份完整的Google服务体验都将极大地丰富你的日常生活。从工作学习到休闲娱乐，Google的各类工具都能为你带来便利。所以，赶紧动手试试吧！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
